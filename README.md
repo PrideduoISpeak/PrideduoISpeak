@@ -1,5 +1,5 @@
 # DIMOFYY
-hi?
+
 <div align="center">
   
 ![Hits](https://hits.sh/github.com/DIMOFYY.svg?label=Dimofyy%20!!%20!!&color=fbfbfb&labelColor=d1c2b3)
