@@ -7,3 +7,6 @@
 [![Alt text](https://pbs.twimg.com/media/G9OW6YpW4AArgbz?format=jpg&name=large)](https://x.com/frame275/status/2005112192828670209)
 
 [strawpage](https://prideduomonday.straw.page/)
+ 
+  </a>
+</div>
