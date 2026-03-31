@@ -9,7 +9,7 @@
 
 ꒰ `` always free to C+h and int! enc `
 
-          ,,“ bpc iwec ! thanks!..”
+          ,,“ MIGHT!! have bpc so please iwec ! thanks!..”
 
 
 
