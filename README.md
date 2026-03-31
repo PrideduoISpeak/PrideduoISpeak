@@ -1,6 +1,14 @@
 # DIMOFYY
 
-<div align="center">
+" idle brain invites the devil in!..”
+^u^~ `` yuanoof ou Kaskiu ,,
+꒰ ﹕" She/any "
+
+꒰ `` always free to C+h and int! enc ``
+          ,,“ bpc iwec ! thanks!..”
+
+          
+                           <div align="center">
   
 ![Hits](https://hits.sh/github.com/DIMOFYY.svg?label=Dimofyy%20!!%20!!&color=fbfbfb&labelColor=d1c2b3)
   
