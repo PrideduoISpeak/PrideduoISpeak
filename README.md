@@ -1,11 +1,17 @@
 # DIMOFYY
 
 " idle brain invites the devil in!..”
+
 ^u^~ `` yuanoof ou Kaskiu ,,
+
 ꒰ ﹕" She/any "
 
+
 ꒰ `` always free to C+h and int! enc ``
+
           ,,“ bpc iwec ! thanks!..”
+
+
 
           
 <div align="center">
