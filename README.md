@@ -1,13 +1,17 @@
 # DIMOFYY
 
-``" idle brain invites the devil in!..”``
-
-^u^~ `` yuanoof ou Kaskiu ,,
-
-꒰ ﹕" She/any "
+<div align="center"> ۶۟ৎ ``" ​🇮​​🇩​​🇱​​🇪​ ​🇧​​🇷​​🇦​​🇮​​🇳​ ​🇮​​🇳​​🇻​​🇮​​🇹​​🇪​​🇸​ ​🇹​​🇭​​🇪​ ​🇩​​🇪​​🇻​​🇮​​🇱​ ​🇮​​🇳​❗..”` ۶۟ৎ <a>
 
 
-꒰ `` always free to C+h and int! enc `
+
+          
+
+⊹ ࣪ ˖`` ʏᴜᴀɴᴏᴏꜰ ᴏᴜ ᴋᴀꜱᴋɪᴜ ,,
+
+꒰ ﹕" 🇸​​🇭​​🇪​/​🇦​​🇳​​🇾​ "
+
+
+꒰ `` ​🇦​​🇱​​🇼​​🇦​​🇾​​🇸​ ​🇫​​🇷​​🇪​​🇪​ ​🇹​​🇴​ ​🇨​+​🇭​ ​🇦​​🇳​​🇩​ ​🇮​​🇳​​🇹​❗ ​🇪​​🇳​​🇨​ `
 
           ,,“ MIGHT!! have bpc so please iwec ! thanks!..”
 
@@ -23,7 +27,9 @@
   
 [![Alt text](https://pbs.twimg.com/media/G9OW6YpW4AArgbz?format=jpg&name=large)](https://x.com/frame275/status/2005112192828670209)
 
-[strawpage](https://prideduomonday.straw.page/)
+⤷ ゛ ˎ[atabook](https://yuannoofs.atabook.org/?page=1) [strawpage](https://prideduomonday.straw.page/)
  
   </a>
 </div>
+
+<p align="center"> Ｍｏｅ　ｍｏｅ　ｋｙｕｎ　ｋｙｕｎ ! </p>
