@@ -1,19 +1,20 @@
 # DIMOFYY
 
-<div align="center"> ۶۟ৎ ``" ​🇮​​🇩​​🇱​​🇪​ ​🇧​​🇷​​🇦​​🇮​​🇳​ ​🇮​​🇳​​🇻​​🇮​​🇹​​🇪​​🇸​ ​🇹​​🇭​​🇪​ ​🇩​​🇪​​🇻​​🇮​​🇱​ ​🇮​​🇳​❗..”` ۶۟ৎ <a>
+<div align="center">  ``" ​🇮​​🇩​​🇱​​🇪​ ​🇧​​🇷​​🇦​​🇮​​🇳​ ​🇮​​🇳​​🇻​​🇮​​🇹​​🇪​​🇸​ ​🇹​​🇭​​🇪​ ​🇩​​🇪​​🇻​​🇮​​🇱​ ​🇮​​🇳​❗..”`  <a>
 
 
-
+  </div>
           
 
-⊹ ࣪ ˖`` ʏᴜᴀɴᴏᴏꜰ ᴏᴜ ᴋᴀꜱᴋɪᴜ ,,
+,, <div align="center">  ⊹ ࣪ ˖`` ʏᴜᴀɴᴏᴏꜰ ᴏᴜ ᴋᴀꜱᴋɪᴜ ,,
 
-꒰ ﹕" 🇸​​🇭​​🇪​/​🇦​​🇳​​🇾​ "
+ 🇸​​🇭​​🇪​/​🇦​​🇳​​🇾​ 
 
 
-꒰ `` ​🇦​​🇱​​🇼​​🇦​​🇾​​🇸​ ​🇫​​🇷​​🇪​​🇪​ ​🇹​​🇴​ ​🇨​+​🇭​ ​🇦​​🇳​​🇩​ ​🇮​​🇳​​🇹​❗ ​🇪​​🇳​​🇨​ `
+ ​🇦​​🇱​​🇼​​🇦​​🇾​​🇸​ ​🇫​​🇷​​🇪​​🇪​ ​🇹​​🇴​ ​🇨​+​🇭​ ​🇦​​🇳​​🇩​ ​🇮​​🇳​​🇹​❗ ​🇪​​🇳​​🇨​ `
 
-          ,,“ MIGHT!! have bpc so please iwec ! thanks!..”
+,, <div align="center">          ,,“  ᴍɪɢʜᴛ!! ʜᴀᴠᴇ ʙᴘᴄ ꜱᴏ ᴘʟᴇᴀꜱᴇ ɪᴡᴇᴄ ! ᴛʜᴀɴᴋꜱ!..”
+    <a>
 
 
           HIHIHI SGIN MY ATA TOO!!
@@ -25,8 +26,12 @@
   
 ![Hits](https://hits.sh/github.com/DIMOFYY.svg?label=Dimofyy%20!!%20!!&color=fbfbfb&labelColor=d1c2b3)
   
-[![Alt text](https://pbs.twimg.com/media/G9OW6YpW4AArgbz?format=jpg&name=large)](https://x.com/frame275/status/2005112192828670209)
+![Alt text](https://files.catbox.moe/v80ure.png)  <div align="center"> ⤷  ᴀʀᴛ ᴄʀᴇᴅɪᴛꜱ xᴜᴀɴᴘʀᴏᴋɪꜰꜰᴀ ᴏɴ x ``
 
+  </div>
+
+  
+         
 ⤷ ゛ ˎ[atabook](https://yuannoofs.atabook.org/?page=1) [strawpage](https://prideduomonday.straw.page/)
  
   </a>
