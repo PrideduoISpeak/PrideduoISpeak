@@ -30,7 +30,7 @@
 
   </div>
 
-  
+  hi im not going to bethat active anymore 😢
          
 ⤷ ゛ ˎ[atabook](https://yuannoofs.atabook.org/?page=1) [strawpage](https://prideduomonday.straw.page/) [THEWORMHOLE](https://www.fronters.cc/sp/THEWORMHOLE) [rentry](https://rentry.co/MajordopferNUMBERonegooner)
   </a>
