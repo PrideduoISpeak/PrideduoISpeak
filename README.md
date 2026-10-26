@@ -6,7 +6,7 @@
   </div>
           
 
-,, <div align="center">  ⊹ ࣪ ˖`` ʏᴜᴀɴᴏᴏꜰ ᴏᴜ ᴋᴀꜱᴋɪᴜ ,,
+,, <div align="center">  ⊹ ࣪ ˖`` Dakota, centi, Yuan ,,
 
  🇸​​🇭​​🇪​/​🇦​​🇳​​🇾​ 
 
