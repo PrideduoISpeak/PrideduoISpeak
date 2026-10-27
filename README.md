@@ -1,5 +1,6 @@
 # DIMOFYY
 <div align="center">
+  
 <img height="440" width=“200” src="https://files.catbox.moe/tm1su2.png" align="left">
 <p align="center">
 
