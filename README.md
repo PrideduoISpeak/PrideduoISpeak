@@ -26,7 +26,7 @@
   
 ![Hits](https://hits.sh/github.com/DIMOFYY.svg?label=Dimofyy%20!!%20!!&color=fbfbfb&labelColor=d1c2b3)
   
-![Alt text]((https://files.catbox.moe/tm1su2.png))  <div align="center"> ⤷  ᴀʀᴛ ᴄʀᴇᴅɪᴛꜱ xᴜᴀɴᴘʀᴏᴋɪꜰꜰᴀ ᴏɴ x ``
+![Alt text](https://files.catbox.moe/tm1su2.png)  <div align="center"> ⤷  ᴀʀᴛ ᴄʀᴇᴅɪᴛꜱ xᴜᴀɴᴘʀᴏᴋɪꜰꜰᴀ ᴏɴ x ``
 
   </div>
 
