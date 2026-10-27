@@ -6,7 +6,7 @@
 
 $${\color{#fce6c2}\textsf{Dakota , Centi , Yuan}}$$
 
-$${\color{#fce6c2}\textsf{She\color{#b6a7b7}any}}$$
+$${\color{#fce6c2}\textsf{She\color{#b6a7b7} any}}$$
 
 $${\color{#fce6c2}\textsf{h}}$$$${\color{#b6a7b7}\textsf{MIGHT, have bpd.}}$$
 <p align="center"> 
