@@ -23,7 +23,7 @@ $${\color{#b6a7b7}\textsf{Mostly active and I move to diff areas a lot ,!}}$$
 
   $${\color{#b6a7b7}\textsf{alt, @tungtungsuar (SPAM FOLLOW ACC !!)}}$$
 
-$${\color{#b6a7b7}\textsf{tyty Val 4 github base !! <i><a href="https://github.com/roadtosleepyhollow">txt</a></i>}}$$
+  $${\color{#b6a7b7}\textsf{tyty Val 4 github base !! <i><a href="https://github.com/roadtosleepyhollow">val</a></i>}}$$
 
 </details>
 
