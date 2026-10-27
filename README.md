@@ -17,13 +17,11 @@ $${\color{#b6a7b7}\textsf{MIGHT, have bpd.}}$$
 ⠀
 <p align="center">
 
-I'm a minor thats 14. read my info on sp or rentry pls ,!!
+$${\color{#b6a7b7}\textsf{I'm a minor thats 14. read my info on sp or rentry pls ,!!}}$$
 
-Mostly active and I move to diff areas a lot ,!
+$${\color{#b6a7b7}\textsf{Mostly active and I move to diff areas a lot ,!}}$$
 
-  main, @PrideduoISpeak
-
-  alt, @tungtungsuar (SPAM FOLLOW ACC !!)
+  $${\color{#b6a7b7}\textsf{alt, @tungtungsuar (SPAM FOLLOW ACC !!)}}$$
 
 tyty Val 4 github base !! [val](https://github.com/roadtosleepyhollow)
 
