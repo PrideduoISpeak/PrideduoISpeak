@@ -33,7 +33,8 @@
 </div>
 
 <p align="center">
-  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31utjpqs4ihaj633f5fp4gaildwe&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=dcbea3&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31utjpqs4ihaj633f5fp4gaildwe&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=dcbea3&bar_color_cover=false">
   </a>
 </p>
 
