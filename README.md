@@ -10,8 +10,6 @@ $${\color{#b6a7b7}\textsf{She\color{#b6a7b7}/any}}$$
 
 $${\color{#b6a7b7}\textsf{MIGHT, have bpd.}}$$
 
-![Hits](https://hits.sh/github.com/DIMOFYY.svg?label=Dimofyy%20!!%20!!&color=fbfbfb&labelColor=d1c2b3)
-
 <p align="center"> 
 
 <details closed>
@@ -30,6 +28,7 @@ $${\color{#b6a7b7}\textsf{Mostly active and I move to diff areas a lot ,!}}$$
 
 </details>
 
+![Hits](https://hits.sh/github.com/DIMOFYY.svg?label=Dimofyy%20!!%20!!&color=fbfbfb&labelColor=d1c2b3)
 
 <p align="center">
   
