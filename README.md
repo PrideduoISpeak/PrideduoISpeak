@@ -4,7 +4,7 @@
 <p align="center">
 
 
-$${\color#b6a7b7}\textsf{Dakota , Centi , Yuan}}$$
+$${\color{#b6a7b7}\textsf{Dakota , Centi , Yuan}}$$
 
 $${\color{#b6a7b7}\textsf{She\color{#b6a7b7}/any}}$$
 
