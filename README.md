@@ -23,14 +23,14 @@ $${\color{#b6a7b7}\textsf{Mostly active and I move to diff areas a lot ,!}}$$
 
   $${\color{#b6a7b7}\textsf{alt, @tungtungsuar (SPAM FOLLOW ACC !!)}}$$
 
-tyty Val 4 github base !! [val](https://github.com/roadtosleepyhollow)
+$${\color{#b6a7b7}\textsf{tyty Val 4 github base !! <i><a href="https://github.com/roadtosleepyhollow">txt</a></i>}}$$
 
 </details>
 
 
 <p align="center">
   
-  ⤷ ゛ ˎ[atabook](https://yuannoofs.atabook.org/?page=1) [strawpage](https://prideduomonday.straw.page/) [rentry](https://rentry.co/MajordopferNUMBERonegooner) 
+  ⤷ ゛ ˎ<i><a href="https://yuannoofs.atabook.org/?page=1">atabook</a></i> <i><a href="https://prideduomonday.straw.page/">strawpage</a></i> <i><a href="https://rentry.co/MajordopferNUMBERonegooner">rentry</a></i>
 
 <div/>
 
