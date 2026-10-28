@@ -19,7 +19,7 @@ $${\color{#b6a7b7}\textsf{MIGHT, have bpd.}}$$
 ⠀
 <p align="center">
 
-$${\color{#b6a7b7}\textsf{I'm a minor thats 14. read my info on sp or rentry pls ,!!}}$$
+$${\color{#b6a7b7}\textsf{I'm a minor. read my info on sp or rentry pls ,!!}}$$
 
 $${\color{#b6a7b7}\textsf{Mostly active and I move to diff areas a lot ,!}}$$
 
